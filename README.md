@@ -1,4 +1,4 @@
-### Hi there 👋 My name is Nihat Im studying in NOBODY GIVES A FUCK HIGH SCHOOL (NGaF) And Im working in a internship in NOBODY CARES CORP and I am gay. I support LGBT, I am feminist, vegan and I am satanist also I hate people who are not gay..
+### Hi there 👋 My name is Nihat Im studying in NOBODY GIVES A FUCK HIGH SCHOOL (NGaF) And Im working in a internship in NOBODY CARES CORP and I am gay. I support LGBT, I am feminist, vegan and I am satanist also I hate people who are not gay.. I get dicked by zencigot every day. I LOVE ZENCIGOTS bcs Im gay too.... ALso dont forget IM a feminist!!!!!!! Pronouns=go/fuck/yourself
 
 <!--
 **nihatsen/nihatsen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
